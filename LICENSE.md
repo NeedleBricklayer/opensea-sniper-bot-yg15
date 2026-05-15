@@ -1,4 +1,4 @@
-# 
+# premium NFT Sniper for opensea sniper bot | snipe-list-management & wash-trading-execution is the best opensea sniper bot, featuring snipe-list-management and
 
 
 
